@@ -1,2 +1,3 @@
-# life
-Things That I Want to :innocent:
+# LIFE
+
+> The best is yet to come
